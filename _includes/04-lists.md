@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Flowers💐🌼
+2. Music🎶
+3. Reading 📖
